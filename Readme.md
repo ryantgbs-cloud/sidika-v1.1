@@ -1,1 +1,1 @@
-Sidika V1.1
+Sidika
